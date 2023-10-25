@@ -1,9 +1,20 @@
-Scientists say they may have made the biggest breakthrough in treating cervical cancer in 20 years, using a course of existing, cheap drugs ahead of usual radiotherapy treatment.
+"I went through hell," says Yocheved Lifschitz, an 85-year-old grandmother and peace activist released by Hamas on Monday after two weeks in captivity.
 
-Trial findings, revealed at the ESMO medical conference, show the approach cut the risk of women dying from the disease or the cancer returning by 35%.
+Ms Lifschitz and her husband were kidnapped by Hamas gunmen on motorbikes and taken into a "spider's web" of tunnels underneath Gaza, she said.
 
-Cancer Research UK, which funded the work, called the results "remarkable".
+She described being hit by sticks on the journey, but said most of the hostages were being "treated well".
 
-It hopes clinics will soon start doing the same for patients.
+She was freed alongside another woman, Nurit Cooper, 79, on Monday evening.
 
-Cervical cancer affects thousands of women each year in the UK, many in their early 30s. Despite improvements in radiotherapy care, cancer returns in up to a third of cases, meaning new approaches are very much needed.
+Extraordinary images show the grandmother shaking the hand of a Hamas gunman, just seconds before she was handed over to the International Red Cross at the Rafah crossing between Gaza and neighbouring Egypt.
+
+"Shalom," she appears to say to the gunman - the Hebrew word for peace.
+
+Ms Lifschitz was kidnapped, alongside her husband Oded, from Nir Oz Kibbutz in southern Israel on 7 October. He has not been released.
+
+It was early in the morning when Hamas attacked their kibbutz, massacring the small community. One in four residents are believed to have been killed or kidnapped, including many children.
+
+Speaking at a news conference from Ichilov hospital in Tel Aviv just a few hours after her release, Ms Lifschitz explained what happened after she was kidnapped.
+
+She said she was hit with sticks during the journey into Gaza, and suffered bruises and breathing difficulties.
+
