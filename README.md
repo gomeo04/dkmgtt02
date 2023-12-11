@@ -4,7 +4,20 @@ Ms Lifschitz and her husband were kidnapped by Hamas gunmen on motorbikes and ta
 
 She described being hit by sticks on the journey, but said most of the hostages were being "treated well".
 
-She was freed alongside another woman, Nurit Cooper, 79, on Monday evening.
+She was freed alongside another woman, Nurit Cooper, 79, on Monday evening.Gao Yaojie, a renowned dissident doctor who exposed the Aids epidemic in rural China, has died aged 95.
+
+Dr Gao died of natural causes in New York, where she had been in exile since 2009, a friend of hers told the BBC.
+
+Her work uncovered how businesses selling blood led to the spread of HIV in the countryside.
+
+She was at the forefront of Aids activism in China and travelled across the country treating patients, often at her own expense.
+
+Born in Shandong province in1927, Dr Gao was a gynaecologist by training. She encountered her first AIDS patient in the central province of Henan in 1996.
+
+Exiled China Aids activist mourns former life
+Selling blood was common in rural areas such as Henan, where Dr Gao lived, in the 1980s and 1990s. Limited economic opportunities among farming communities left them with few other options to make a living - and blood-selling was often backed by local governments. But with few cases of HIV being diagnosed in rural China at the time, and low awareness of the disease, blood was also collected from HIV+ patients, leading to the spread of the disease.
+
+At that time, Chinese authorities were saying that HIV could be transmitted in two ways - through sex or from mother-to-child during pregnancy. Dr Gao had a realisation when she found that one of her patients did not fall into either category but had a history of blood transfusion.
 
 Extraordinary images show the grandmother shaking the hand of a Hamas gunman, just seconds before she was handed over to the International Red Cross at the Rafah crossing between Gaza and neighbouring Egypt.
 
