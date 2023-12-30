@@ -15,7 +15,6 @@ She was at the forefront of Aids activism in China and travelled across the coun
 Born in Shandong province in1927, Dr Gao was a gynaecologist by training. She encountered her first AIDS patient in the central province of Henan in 1996.
 
 Exiled China Aids activist mourns former life
-Selling blood was common in rural areas such as Henan, where Dr Gao lived, in the 1980s and 1990s. Limited economic opportunities among farming communities left them with few other options to make a living - and blood-selling was often backed by local governments. But with few cases of HIV being diagnosed in rural China at the time, and low awareness of the disease, blood was also collected from HIV+ patients, leading to the spread of the disease.
 
 At that time, Chinese authorities were saying that HIV could be transmitted in two ways - through sex or from mother-to-child during pregnancy. Dr Gao had a realisation when she found that one of her patients did not fall into either category but had a history of blood transfusion.
 
