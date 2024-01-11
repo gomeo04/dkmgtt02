@@ -8,7 +8,6 @@ She was freed alongside another woman, Nurit Cooper, 79, on Monday evening.Gao Y
 
 Dr Gao died of natural causes in New York, where she had been in exile since 2009, a friend of hers told the BBC.
 
-Her work uncovered how businesses selling blood led to the spread of HIV in the countryside.
 
 She was at the forefront of Aids activism in China and travelled across the country treating patients, often at her own expense.
 
